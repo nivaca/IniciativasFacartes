@@ -1,4 +1,4 @@
-# Acciones y proyectos en curso:
+# Acciones y proyectos en curso
 
 - Centro de Estudios en Periodismo, CEPER. Iniciativa de Narrativas Digitales, https://drive.google.com/drive/folders/1DeHOx0W7G5AW8Ym6XO8eLAxuYLGAdPgC  
 
